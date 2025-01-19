@@ -10,3 +10,4 @@ You can find as `MUG-JP Space`!
 
 - Spotify: https://open.spotify.com/show/2rJIiTBz7jaFb3yVNmcx9z
 - Apple Podcast: https://podcasts.apple.com/jp/podcast/mug-jp-space/id1791360698
+- YouTube Music: https://www.youtube.com/playlist?list=PLMvgxsfAhCD6Mq_JB6eWC3IT8eHYfEwA2
